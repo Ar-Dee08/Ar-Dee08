@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Some PersonalProjects
 - 📫 How to reach me contact me here or in my email rdeeflores08@gmail.com
 - 😄 Pronouns: his/him
-- ⚡ Fun fact: I learn more by doing something not just by listening
+- ⚡ Fun fact: It's better to be foolish than a coward
 
 <!---
 Ar-Dee08/Ar-Dee08 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
