@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning vanilla Javascript
 - 💞️ I’m looking to collaborate on Some PersonalProjects
 - 📫 How to reach me contact me here or in my email rdeeflores08@gmail.com
-- 😄 Pronouns: his/him
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: 
 
 <!---
